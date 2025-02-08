@@ -1,4 +1,4 @@
-## Critical Thinking (批判性思维)
+## Critical Thinking (批判性思维)	
 
 材料：
 
